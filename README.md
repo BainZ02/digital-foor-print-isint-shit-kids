@@ -22,3 +22,12 @@ script kiddies on omegle are the people who use extensions such as chromegle etc
 ### people who think omegle is a place to goon
 
 first off theses people think that ohh im on omegle no one will know who i am if i goon or thinking they will find someone to goon with but these people are mostly idiots they think you cant find them because they are behind a screen i will be posting more on this not just there location but there full name job etc.... rules will apply to this 
+
+
+--
+
+### proving my point 
+
+men who cant seek solace from there wifes or spouses then seek further solace from younger defensless girls or women 
+
+pedofiles may seem like nice people but are just sheep in wolfs clothing
