@@ -9,9 +9,9 @@ kids "idiots" on the internet
 this girl or guy i dont know claims hitler was cool and saying that people should hate the jews yet she has jews as friends? ironic yet why do it now why do it on omegle places on omegle rely on ip to ip connection people like this will further be poster with there public ip and state and city 
 
 
+--
 
-
-script kiddies 
+###script kiddies 
 
 script kiddies on omegle are the people who use extensions such as chromegle etc.. to get your ip adress what most skids dont realize is what they are really executing in the extension i can make an extension my self claiming to be the chromegle ip puller and take your passwords same people that use nmap without knowing whats going on i will post clips of script kiddies
 
