@@ -4,4 +4,4 @@ a repo deticated of showign people the truth behind the internets idiots and peo
 
 
 #kids on the internet
-![img](idiot1.png)
+![img](skids.png)
