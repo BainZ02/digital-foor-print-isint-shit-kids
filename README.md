@@ -35,3 +35,5 @@ pedofiles may seem like nice people but are just sheep in wolfs clothing
 ![img](pedo.png)
 
 these people assume they are anonymous because they are behind a screen but they are really less anonymous on these websites these types of people seek cp from younger women or men to exotrt them to fufill there fantasies or urges
+
+some of these predators may pose as younger men to try and lure them to extort them and they can hide pretty well but you can catch there flaws there punctoation the wau they talk its the way they interact they dont speak like a teen they speak like a man 
