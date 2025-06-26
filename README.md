@@ -42,3 +42,5 @@ some of these predators may pose as younger men to try and lure them to extort t
 ![img](n3.png)
 
 they act like its your choice but they play mind games with you to make it seem like its your choice but they really are forcing you just dont know it
+
+![img](n5.png)
