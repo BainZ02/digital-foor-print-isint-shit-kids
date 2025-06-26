@@ -31,3 +31,7 @@ first off theses people think that ohh im on omegle no one will know who i am if
 men who cant seek solace from there wifes or spouses then seek further solace from younger defensless girls or women 
 
 pedofiles may seem like nice people but are just sheep in wolfs clothing
+
+![img](pedo.png)
+
+these people assume they are anonymous because they are behind a screen but they are really less anonymous on these websites these types of people seek cp from younger women or men to exotrt them to fufill there fantasies or urges
