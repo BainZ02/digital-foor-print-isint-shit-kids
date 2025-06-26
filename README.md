@@ -39,4 +39,6 @@ these people assume they are anonymous because they are behind a screen but they
 
 some of these predators may pose as younger men to try and lure them to extort them and they can hide pretty well but you can catch there flaws there punctoation the wau they talk its the way they interact they dont speak like a teen they speak like a man 
 
-![img](n2.png)
+![img](n3.png)
+
+they act like its your choice but they play mind games with you to make it seem like its your choice but they really are forcing you just dont know it
