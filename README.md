@@ -44,3 +44,5 @@ some of these predators may pose as younger men to try and lure them to extort t
 they act like its your choice but they play mind games with you to make it seem like its your choice but they really are forcing you just dont know it
 
 ![img](n5.png)
+
+this pdf bryan from texas pretends to be a 16 year old his discord is  clovis1097
