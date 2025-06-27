@@ -12,7 +12,7 @@ This person, claims hitler was cool and saying that people should hate the jews 
 script kiddies (skids) on omegle are the people who use extensions such as chromegle etc.. to get your ip adress what most skids dont realize is what they are really executing in the extension i can make an extension my self claiming to be the chromegle ip puller and take your passwords same people that use nmap without knowing whats going. 
 same on my other repo collab with drexxy about skids you can see someone familliar who is probably white saying racial slurs after we just asked to be proffesional in our server to boost our sales
 
-![img](zenrac2.png)
+![img](zenracked.png)
 
 
 
