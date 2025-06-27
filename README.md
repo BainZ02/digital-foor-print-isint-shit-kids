@@ -29,7 +29,7 @@ first off theses people think that ohh im on omegle no one will know who i am if
 
 men who cant seek solace from there wifes or spouses then seek further solace from younger defensless girls or women 
 
-pedofiles may seem like nice people but are just sheep in wolfs clothing
+pedofiles may seem like nice people but are just wolf in sheeps clothing
 
 ![img](pedo.png)
 
